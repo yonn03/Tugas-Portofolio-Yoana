@@ -1,2 +1,3 @@
 # Tugas-Portofolio-Yoana
-Tugas Portofolio 
+Ini Tugas Portofolio punya saya Ya.
+aku kerjainnya sambil denger Seasons - Wave to Earth T-T
